@@ -36,3 +36,6 @@ https://www.youtube.com/watch?v=FrKpNz5XnKI
 지원 RPA를 위한 인공지능 과정
 
 #### 서울 양평동 한경닷컴 교육센터에서 2021년 11월 부터 2022년 4월 까지 진행합니다.
+
+0111 좋은노래가 너무 많은데 노래없이도 버닝이 더 좋다. 그래도 tycho _ 24643 
+https://www.youtube.com/watch?v=PRqKCgT0sQA&list=PLrRWkkX3oYgkYHjeicYTQg-FQFHgyoifv&index=7
