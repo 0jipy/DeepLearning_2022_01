@@ -6,6 +6,9 @@ data/
 model/
 OpinosisDataset1.0/
 
+# CNN 모델에서 216M
+best_mnist_cnn_1.h5
+
 # C:\Users\jlune\carbon\999
 UCI HAR Dataset/
 human_activity
