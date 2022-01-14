@@ -5,6 +5,8 @@ creditcard.csv
 data/
 model/
 OpinosisDataset1.0/
+11.OpenCV/
+
 
 # CNN 모델에서 216M
 best_mnist_cnn_1.h5
