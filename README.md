@@ -46,13 +46,10 @@ https://www.youtube.com/watch?v=RRAPtxcdHMU&list=PLrRWkkX3oYgmFa5bi-SLUoEz3DHNtO
 𝔾𝕣𝕒𝕔𝕖 𝕍𝕒𝕟𝕕𝕖𝕣𝕎𝕒𝕒𝕝 - 𝕎𝕒𝕤𝕥𝕖 𝕄𝕪 𝕋𝕚𝕞𝕖
 https://www.youtube.com/watch?v=UJ34CvlEuog&list=PLrRWkkX3oYgkPwAVHDroA4w03vVUFws69&index=1
 
-4. 이거 틀면, 시리가 알아듣는데요. # 샐럼일리스.
-𝐬𝐚𝐥𝐞𝐦 𝐢𝐥𝐞𝐬𝐞 - 𝐡𝐞𝐲 𝐬𝐢𝐫𝐢
-https://www.youtube.com/watch?v=lSRIAOyIA54&list=PLrRWkkX3oYgmFa5bi-SLUoEz3DHNtOo1m&index=4
-
 0. No Comment :  AJR - Weak
 https://www.youtube.com/watch?v=qAt9OODVgCQ&list=PLrRWkkX3oYgmFa5bi-SLUoEz3DHNtOo1m&index=7
 
+- 샐럼일리스는 다음에.
 
 
 
