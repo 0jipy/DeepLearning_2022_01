@@ -50,6 +50,9 @@ https://www.youtube.com/watch?v=UJ34CvlEuog&list=PLrRWkkX3oYgkPwAVHDroA4w03vVUFw
 𝐬𝐚𝐥𝐞𝐦 𝐢𝐥𝐞𝐬𝐞 - 𝐡𝐞𝐲 𝐬𝐢𝐫𝐢
 https://www.youtube.com/watch?v=lSRIAOyIA54&list=PLrRWkkX3oYgmFa5bi-SLUoEz3DHNtOo1m&index=4
 
+0. No Comment :  AJR - Weak
+https://www.youtube.com/watch?v=qAt9OODVgCQ&list=PLrRWkkX3oYgmFa5bi-SLUoEz3DHNtOo1m&index=7
+
 
 
 
