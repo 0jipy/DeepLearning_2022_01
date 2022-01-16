@@ -32,6 +32,26 @@ https://www.youtube.com/watch?v=FrKpNz5XnKI
 
 - 달이 바뀌면 지브리 부도칸으로 가볼까 -
 
+0116 편집.
+
+1. 원곡은 city pop이 유행할 당시의 일본곡이라고. 
+The Weeknd - Out of Time
+https://www.youtube.com/watch?v=KT_a2rvR-4c&list=PLrRWkkX3oYgmFa5bi-SLUoEz3DHNtOo1m&index=3
+
+2. 
+sebajun . 거장, 이미 오래되서 보통은 숨겨두지만, 이건.. 시간을 달리는 소녀니까. 
+https://www.youtube.com/watch?v=RRAPtxcdHMU&list=PLrRWkkX3oYgmFa5bi-SLUoEz3DHNtOo1m&index=1
+
+3. 이미떳지만 더 띄우고 싶은 그레이스 반더월. 
+𝔾𝕣𝕒𝕔𝕖 𝕍𝕒𝕟𝕕𝕖𝕣𝕎𝕒𝕒𝕝 - 𝕎𝕒𝕤𝕥𝕖 𝕄𝕪 𝕋𝕚𝕞𝕖
+https://www.youtube.com/watch?v=UJ34CvlEuog&list=PLrRWkkX3oYgkPwAVHDroA4w03vVUFws69&index=1
+
+4. 이거 틀면, 시리가 알아듣는데요. # 샐럼일리스.
+𝐬𝐚𝐥𝐞𝐦 𝐢𝐥𝐞𝐬𝐞 - 𝐡𝐞𝐲 𝐬𝐢𝐫𝐢
+https://www.youtube.com/watch?v=lSRIAOyIA54&list=PLrRWkkX3oYgmFa5bi-SLUoEz3DHNtOo1m&index=4
+
+
+
 
 지원 RPA를 위한 인공지능 과정
 
