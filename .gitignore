@@ -5,7 +5,8 @@ creditcard.csv
 data/
 model/
 OpinosisDataset1.0/
-11.OpenCV/
+# 11.OpenCV/
+사진/
 
 
 # CNN 모델에서 216M
